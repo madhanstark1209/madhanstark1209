@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @madhanstark1209...
-- html developer
-- python codes
+- trader💹📊📉
+- python codes🧑‍💻
 - java
 - follow my account
 
